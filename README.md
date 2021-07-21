@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PhatCJ
+- 👀 I’m interested in way too many things to list here.
+- 🌱 I’m currently failing at learning life.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me? You don't.
